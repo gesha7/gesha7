@@ -1,3 +1,6 @@
+McMaster University
+Mc id -> guptae6
+ 
 -  Hi, I’m Esha Gupta.
 -  I’m interested in mathematics, and dealing with the real life code problems.
 -  I’m currently learning Computer Science.
