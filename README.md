@@ -1,3 +1,8 @@
+
+![Group 1](https://github.com/user-attachments/assets/02f3848d-2478-454d-b4ad-0861efe6f4dc)
+
+
+
 McMaster University
 Mc id -> guptae6
  
